@@ -1,1 +1,1 @@
-# KultureHire-Business-Analyst-Internship
+# KultureHire Business Analyst Internship
